@@ -1,4 +1,6 @@
-# THIS PAGE IS A SUMMARY OF THE RECORD I HAVE STUDIES : ahleno 😇
+# THIS PAGE IS A SUMMARY OF THE RECORD I HAVE STUDIES 😇
+
+Who? : ahleno
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=Developing+my+programming+skills.++;Record+my+growth)](https://git.io/typing-svg)
 
